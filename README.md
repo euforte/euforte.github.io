@@ -8,7 +8,7 @@ i work as a copywriter for health-tech companies <sub>when they want to hire me<
 
 > you can find a sample of my writing [here](https://github.com/euforte/euforte.github.io/files/14628497/RevVaccinology.WP.pdf)
 
-you can find my cv [here](https://github.com/euforte/euforte.github.io/files/14628534/202403.Eugenia.Forte.BIO.pdf)
+you can find my cv [here](https://github.com/euforte/euforte.github.io/files/14628927/202403.Eugenia.Forte.BIO.pdf)
 
 you can find my linkedin [here](https://www.linkedin.com/in/eugeniaforte/)
 
